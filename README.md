@@ -1,1 +1,1 @@
-qazeta
+qazeta1
