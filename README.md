@@ -1,1 +1,1 @@
-qazeta123
+qazeta1234
