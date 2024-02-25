@@ -1,1 +1,1 @@
-qazeta12345
+qazeta123456
